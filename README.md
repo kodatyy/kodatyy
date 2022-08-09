@@ -1,5 +1,5 @@
 # ㇱㅤＡｂｏｕｔㅤｍｅㅤㇱ
- #  ༻ ༻ ༻ ༻ ༻ ༻ ༻   炎望   ༺ ༺ ༺ ༺ ༺ ༺ ༺
+ #  ༻ ༻ ༻ ༻ ༻ ༻   炎望   ༺ ༺ ༺ ༺ ༺ ༺ ༺
 - 🥷 Olá meu nome é @kodatyy
 - 😷Meu email de contato é tutty.kodash@gmail.com
 - 🤡 Eu estou interessado em aprender a programar novas linguagens.
